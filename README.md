@@ -1,4 +1,4 @@
-# Leaked By HeyCrab3#1970
+# Fork from HeyCrab3
 ![1661232057393.png](https://img1.imgtp.com/2022/08/23/TKzv2Rvb.png)
 [![bX27o.png](https://s1.328888.xyz/2022/08/23/bX27o.png)](https://imgloc.com/i/bX27o)
 # 雨露大主播
@@ -16,5 +16,5 @@
 
 6、神权
 
-# 雨露今天抄什么
-> 火速去复制粘贴 Skyrim 配置 ^
+# 给雨露大神的建议
+> 哥 你跑路吧 ^
